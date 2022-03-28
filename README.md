@@ -1,0 +1,1 @@
+# wayato.github.io
